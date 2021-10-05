@@ -1,1 +1,1 @@
-# istiaq.
+# istiaq
